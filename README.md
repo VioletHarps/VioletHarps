@@ -1,0 +1,3 @@
+- Hiya, I’m @VioletHarps
+- I’m interested in gaming, music, all those things
+- I'm looking into creating avatars for games so far. I'm a beginner at this type of stuff.
